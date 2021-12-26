@@ -1,11 +1,11 @@
 ### Hi there, I'm Youssef - aka [Krank56][website] 👋
 
 
-## I'm a Civil engineer, junior developper and PhD Students in physics !
+## I'm a Civil engineer, junior developper and PhD Student in physics !
 
 - 📚 I’m currently learning everything 🤣
-- 🥅 2020 Goals: Having goals is so overrated
-- 🎸 I love to play guitar and watch anime
+- 🥅 2022 Goals: Raise money for a local orphenage
+- 🎸 I love to play guitar
 
 
 <br />
