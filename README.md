@@ -1,7 +1,7 @@
 ### Hi there, I'm Youssef - aka [Krank56][website] 👋
 
 
-## I'm a Civil engineer, junior developper and PhD Student in physics !
+## I'm a Civil/IT engineer, developper and PhD Student in physics !
 
 - 📚 I’m currently learning everything 🤣
 - 🥅 2022 Goals: Raise money for a local orphenage
